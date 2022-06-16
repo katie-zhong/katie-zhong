@@ -4,4 +4,4 @@
 
 → 🌱 And I’m currently learning R
 
-→ 🤗 Feel free to add me on [LinkedIn]([url](https://www.linkedin.com/in/katie-zhong-163684163/))!
+→ 🤗 Feel free to add me on [LinkedIn](https://www.linkedin.com/in/katie-zhong-163684163/)!
